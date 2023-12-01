@@ -1,2 +1,2 @@
 # self
-a graphic design made on canva
+a graphic design video made on canva
